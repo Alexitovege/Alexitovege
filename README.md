@@ -5,7 +5,7 @@
 - 📫 How to reach me send me an email --> alexitovege.15@gmail.com
 - 😄 Pronouns: he
 - ⚡ Fun fact: I'm a fan of motorsport
-- 🏍️ I love motorcycles and special Macr Marquez
+- 🏍️ I love motorcycles and special Marc Marquez
 
 <!---
 Alexitovege/Alexitovege is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
